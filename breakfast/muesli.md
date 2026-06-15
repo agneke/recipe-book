@@ -2,3 +2,6 @@
 110 g unflavoured yoghurt
 100 g curd
 50 g cherries
+
+Mix all together
+Enjoy
